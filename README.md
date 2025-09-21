@@ -17,6 +17,12 @@ i love lapearl (truth)
 
 lapearldot 5ever haha
 
+i like abstragedy too
+
+and lanlema (go on twt look up #lanlema 90% of it is me)
+
+but it's rin's acc yes i borrowed (stole) it for a few months
+
 --
 
 *dont mention jasp\*r to me i will dissociate /srs
